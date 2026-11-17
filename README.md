@@ -1,4 +1,4 @@
-### Hi there, I’m Yichen 👋
+### Hi there, I’m Cassiel 👋
 
 👀 I’m interested in AI applications, workflow automation, and product design.
 
